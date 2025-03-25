@@ -10,4 +10,4 @@
 
 ㅤㅤㅤㅤㅤㅤㅤask for discordㅤandㅤother socials.
 
-.ㅤㅤ[#rentry](https://rentry.co/gaycity)ㅤㅤ★ㅤ.ㅤ[sign>_<](https://kenashcorp.atabook.org/)ㅤㅤ★ㅤ.ㅤ[straw](http://6deaths.straw.page/)ㅤ★ㅤ[my fandoms](https://rentry.co/6dpb)ㅤ
+.ㅤㅤ[#rentry](https://rentry.co/gaycity)ㅤㅤ★ㅤ.ㅤ[sign>_<](https://kenashcorp.atabook.org/)ㅤㅤ★ㅤ.ㅤ[my fandoms](https://rentry.co/6dpb)ㅤ
